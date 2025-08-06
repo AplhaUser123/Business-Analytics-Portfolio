@@ -31,6 +31,8 @@ This repository showcases my work in business analytics, covering a range of too
 
 🔗 [View My Google Drive Portfolio](https://drive.google.com/drive/folders/1ypxsxZ57F89uIe6MikWYeBRyISckczOG)
 
+📧 [Contact Me on Gmail](https://mail.google.com/mail/?view=cm&to=anvaygulwe@gmail.com)
+
 📧 [Contact Me](mailto:anvaygulwe@gmail.com)
 
 ---
